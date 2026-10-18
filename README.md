@@ -12,4 +12,6 @@
 - No longer than 4 days after rebranding, the new name has been stolen, along with the search results.
 <a href=" " target="_blank"><img src="https://raw.githubusercontent.com/joshuacline/RedFlags/main/Oct17_2026_NameAndSEOTheft.jpg" alt=" " width="720"/></a>
 
-- Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account.
+- Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***These are the same exact folks over and over, who think they've fooled everyone by pretending to be from many different places with many different foreign languages. It's fake and is likely originating from the U.S. and Germany.***
+
+## This predatory bulls!it needs to stop, and so here I am shining the spotlight. My app also needs coverage, is anyone even out there?
