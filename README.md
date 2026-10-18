@@ -12,6 +12,8 @@
 - No longer than 4 days after rebranding, the new name has been stolen, along with the search results.
 <a href=" " target="_blank"><img src="https://raw.githubusercontent.com/joshuacline/RedFlags/main/Oct17_2026_NameAndSEOTheft.jpg" alt=" " width="720"/></a>
 
+***It's more than name squatting. Hence, the features and description. It's meant to defraud and mislead users, and to divert traffic from my project, that I've spent over five years developing. I've had no media coverage, not an article, not a video, nothing. They also ruined the search results for my full legal name with nasty nasty stuff, and is ironically the epitome of the very ones responsible.***
+
 - Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***These are the same exact folks over and over, who think they've fooled everyone by pretending to be from many different places with many different foreign languages. It's fake and is likely originating from the U.S. and Germany.***
 
 ## This predatory bulls!it needs to stop, and so here I am shining the spotlight. My app also needs coverage, is anyone even out there?
