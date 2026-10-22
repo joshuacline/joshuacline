@@ -1,6 +1,14 @@
 
 # Attention Tech & Affiliated Communities:
 
+> [!WARNING]
+> ##  There is a recent fraudulent malicious tool going by the same name as WinPloy
+>  This is an outright shameful attempt to benefit from and steal my traffic and hard work via 'name-jacking', likely by the same individual responsible for the timely theft of handles all over the internet for my legal name coinciding with the creation of this github account and first initial release
+
+> It has been advised to publicly disclose and advertise the website of this malicious individual whom is located @ elevenforum.com & tenforum.com to induce community pressure until the matter is resolved, and your patience is appreciated 
+
+>  Do not download from anywhere else other than here or the mirrors listed on the main page
+
 ***I've been in a state of constant grief, theft, and harassment since the very beginning of development. Now they know everyone knows about it, so they stopped trying to hide.***
 
 - They ruined my results for every search engine, and VirusTotal results as well, ***permanently***. So I decided to go through a rebranding effort, and see how well it turns out.
@@ -16,4 +24,3 @@
 
 - Several prominent online communities know the originating names, developers, and affiliated Windows tools responsible. Never will I ***ever***, ***EVER*** let this go until these communities and responsible parties are held to account. ***These are the same exact folks over and over, who think they've fooled everyone by pretending to be from many different places with many different foreign languages. It's fake and is likely originating from the U.S. and Germany.***
 
-## This predatory bulls!it needs to stop, and so here I am shining the spotlight. My app also needs coverage, is anyone even out there?
