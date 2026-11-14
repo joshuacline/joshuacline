@@ -5,7 +5,7 @@
 
 ***What if I told you:***
 
-Your priceless go-to app from made by some random developer (both of which you've never heard of before) are already dead. Name, product, career, figuratively, reputationally, and in some cases literally.
+Your priceless go-to app made by some random developer (both of which you've never heard of before) are already dead. Name, product, career, figuratively, reputationally, and in some cases literally.
 
 Success isn't on the menu. Hoping to get noticed as a developer by industry peers such as publishers or video content producers? AKA the only metric of success as a freelance developer. No, you'll get noticed by a pathetic world of poor unfortunate souls. Following that you'll be imitated, impersonated, intellectually looted, stalked, social engineered and smothered with fake and defamatory ***search-result mountains***. A telling warning to industry peers, publishers, youtubers, and other online influencers to stay away, or else.
 
