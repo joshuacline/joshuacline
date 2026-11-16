@@ -1,8 +1,8 @@
 # Attention New Software Developers:
 
-You’re traveling through another dimension, a dimension not only of sight and sound but of envy, fragility, and fakery; a journey into a disastrous land of those whose destinies are in the hands of but a few seething individuals. Notably the only place you'll find a ninety-nine to one hater ratio, from the windows to the walls. Next stop … the Twilight Zone
-
 ***Meet The Developer Killers.***
+
+You’re traveling through another dimension, a dimension not only of sight and sound but of envy, fragility, and fakery; a journey into a disastrous land of those whose destinies are in the hands of but a few seething individuals. Notably the only place you'll find a ninety-nine to one hater ratio, from the windows to the walls. Next stop … the Twilight Zone
 
 ***Everything's a mirage, get out while you still can.***
 
